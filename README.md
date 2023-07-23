@@ -1,1 +1,1 @@
-# Simulation-Modelling-Study-for-Hard-Workers-in-a-Group-Project
+# Simulation Modelling:Study for Hard Workers in a Group Project
